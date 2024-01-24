@@ -1,2 +1,2 @@
 # Recourses
-Branding Recourses
+Branding Resources
